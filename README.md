@@ -1,4 +1,4 @@
-### Hey all, Guillermo here! 👋
+### Hey all, Kara here! 👋
 
 <!--
 **thetimelords12/thetimelords12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
